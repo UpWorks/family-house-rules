@@ -12,7 +12,7 @@ put away.
 + **Homework done** - if you've been assigned homework, it's done. 
 If you have a math test, do it. If you've got pages to do, do them.
 + **Toilets flushed** - Every bowl is a fresh bowl. No excuses. There's never 
-an empty toilet paper roll. No uses the Parent's bathroom.
+an empty toilet paper roll. No one uses the Parent's bathroom.
 + **Kitchen put away** - Cabinets closed. No glasses on counter. Fridge closed. 
 No food left out. Trash gets put out of it goes over the top of can or bag is full.
 + **Meals** - You take your won plates and one of the parent's. Scrape the food and all plates and 
